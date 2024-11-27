@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...93
 - 📫 How to reach me ...fgh
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...456
 6
 <!---
 fetnbia/fetnbia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
