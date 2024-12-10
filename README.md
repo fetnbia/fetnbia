@@ -7,7 +7,7 @@ adsdsa- 👋 Hi, I’m @fetnbia
 - ⚡ Fun fact: ...456
 6
 <!---54asds
-fetnbia/fetnbia is a ✨ special ✨ reposisdftory because its `README.md` (this file) appears on your GitHub profile.
+fetnbia/fetnbia is a ✨ special ✨ reposisdftory besdfcause its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.653
 --->dfg
 365
