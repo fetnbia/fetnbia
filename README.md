@@ -4,7 +4,7 @@ adsdsa- 👋 Hi, I’m @fetnbia
 - 💞️ I’m looking to collaborate on ...9355533
 - 📫 How to reach me ...fgh
 - 😄 Pronouns: ...dssd,k
-- ⚡ Fun fact: ...225
+- ⚡ Fun fact: ...225dss
 645
 <!---54asds545
 fetnbia/fetnbia is a ✨ special ✨ reposisdftory besdfcause its `README.md` (this f543543ile) appears on your GitHub profile.
