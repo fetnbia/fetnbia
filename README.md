@@ -3,7 +3,7 @@ adsdsa- 👋 Hi, I’m @fetnbia
 - 🌱 I’m currently learning ...556
 - 💞️ I’m looking to collaborate on ...9355533
 - 📫 How to reach me ...fgh
-- 😄 Pronouns: ...dssd,k
+- 😄 Pronouns: ...dssd,k.
 - ⚡ Fun fact: ...225dss546
 645365
 <!---54asds545
