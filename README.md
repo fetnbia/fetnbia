@@ -2,8 +2,8 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...556
 - 💞️ I’m looking to collaborate on ...9355533
-- 📫 How to reach me ...fghdsfdsf
-- 😄 Pronouns: ...dssd,k.
+- 📫 How to reach me ...fghdsfdsfger
+- 😄 Pronouns: ...dssd,k.ge
 - ⚡ Fun fact: ...225dss546
 6453654152
 <!---54asds545
