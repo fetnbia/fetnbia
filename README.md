@@ -4,7 +4,7 @@ e996adsdsa- 👋 Hi, I’m @fetnbia
 - 🌱 I’m currently learning ...556
 - 💞️ I’m looking to collaborate on ...9355533awadsa
 - 📫 How to reach me ...45jmj
-- 😄 Pronouns: ...dssd,k.genghghn
+- 😄 Pronouns: ...dssd,k.genghghngh
 - ⚡ Fun fact: ...225dss546wesadasas
 6453654152
 <!---54asds545
