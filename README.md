@@ -1,7 +1,7 @@
 ]]]
 e996adsdsa- 👋 Hi, I’m @fetnbia
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...556
+- 🌱 I’m currently learning ...55615
 - 💞️ I’m looking to collaborate on ...9355533awadsa
 - 📫 How to reach me ...45jmjgregfr
 - 😄 Pronouns: ...dssd,k.genghghngh
