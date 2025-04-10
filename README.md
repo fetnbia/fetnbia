@@ -1,7 +1,7 @@
 werwe]]]
 e996adsdsa- 👋 Hi, I’m @fetnbia
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...55615sv623
+- 🌱 I’m currently learning ...55615sv623626
 - 💞️ I’m looking to collaborate on ...9355533awadsa5263hngdvascsfddsfdsf
 - 📫 How to reach me ...1hrhtr89rgwgrw63gsdssdvd
 - ⚡ Fun fact: ...225dss546wesadasasrtgreds
