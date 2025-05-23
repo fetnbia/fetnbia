@@ -4,7 +4,7 @@ e996adsdsa- 👋 Hi, I’m @fetnbia
 - 🌱 I’m currently learning ...55615sv623626fsdfsdmhgghmmhg
 - 💞️ I’m looking to collaborate on ...9355533awadsa5263hngdvascsfddsfdsfsdfdsfdsfwerwreddsfcccfgbbfgfgwrerewewrgtrfgfgff
 - 📫 How to reach me ...1hrhtr89rgwgrw63gsdssdvdtmyfggfff
-- ⚡ Fun fact: ...225dss546wesadasasrtgredsаррпрdhtdhgdfdgfdfdeterewrrew
+- ⚡ Fun fact: ...225dss546wesadasasrtgredsаррпрdhtdhgdfdgfdfdeterewrrewffgfhgg
 6453654152cxcxjmmsdcds85werwerwrbgfbfdfdmdyhcgfndfvcbcvcvvhtdgfhgfh
 <!---54asds545sdfsdfewfewwefwfdddss
 fetnbia/fetnbia is a ✨ special ✨ reposisdftory besdfcause its `README.md` 6262(this f543543ilcxggfgfgfxcxce) appears on your GitHub profile.
