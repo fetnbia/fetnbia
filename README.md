@@ -1,7 +1,7 @@
 8764531205412gfhjgfghjrgergergegrehhggfbgbfwerwe]]]
 e996adsdsa- 👋 Hi, I’m @fetnbia
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...55615sv623626fsdfsdmhgghmmhg
+- 👀 I’m interested in ...jfhfj
+- 🌱 I’m currently learning ...55615sv623626fsdfsdmhgghmmhgjfhfh
 - 💞️ I’m looking to collaborate on ...9355533awadsa5263hngdvascsfddsfdsfsdfdsfdsfwerwreddsfcccfgbbfgfgwredgfdgfgdfgdfsdvdsfsdddfdfd
 - ⚡ Fun fact: ...225dss546wesadasasrtgredsаррпрdhtdhgdfdgfdfdeterewrrewffgfhgg
 6453654152cxcxjmmsdcds85werwerwrbgfbfdfdmdyhcgfndfvcbcvcvvhtdgfhgfh
